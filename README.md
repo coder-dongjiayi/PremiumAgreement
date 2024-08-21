@@ -1,4 +1,4 @@
-# 0XPassword VIP Membership Agreement
+# 0XPassword Premium Agreement
 
 **Version Release Date:** August 21, 2024
 **Version Effective Date:** August 21, 2024
